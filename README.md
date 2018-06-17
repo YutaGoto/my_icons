@@ -1,2 +1,4 @@
 # my_icons
-自分のTwitterアイコンたち
+[.ごっち](https://twitter.com/gggooottto)のTwitterアイコンたち
+
+勝手に使ってはいけません。
